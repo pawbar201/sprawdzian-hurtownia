@@ -1,1 +1,0 @@
-# sprawdzian-hurtownia
